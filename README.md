@@ -7,10 +7,10 @@
  🐦 Contact Me:
  
   Discord: 0fficer.k
-  **DM Me On Discord For Prices & To buy!**
+  **DM Me On Discord to buy!**
 ____________________________________________________________________
 
-# 🔍 Services Info
+ 🔍 Services Info
 
 Discord Server Cloneing - $5-$10
 WIX Profesinal Website - $5-$30
@@ -20,5 +20,4 @@ For Purchaseing DM me on Discord (0fficer.k).
 ```
 </p>
 
-## NOTE
 </h1>
